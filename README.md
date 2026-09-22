@@ -1,4 +1,3 @@
-# shrinidhipatil1402
 
 # Hey, I'm Shrinidhi Patil
 
